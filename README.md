@@ -2,7 +2,7 @@
 
 *Looking for a free way to enhance your Xbox gaming experience? You're in luck! For a limited time, we're offering FREE $50 US Xbox Gift Card Codes! Whether you're looking to buy the latest games, subscriptions, or in-game items, this free gift card will elevate your gaming experience without spending a dime. Keep reading to find out how you can claim your free gift card code today!*
 
-### [✅👉CLICK HERE TO GET NOW!](https://shorturl.at/ix5Po)
+### [✅👉CLICK HERE TO GET NOW!](https://justfree.xyz/xbox/go/)
 
 **The Ultimate Xbox Gift Card Experience**
 
